@@ -1,2 +1,2 @@
-# Just some typical FholeeDrop Files and other stuff.
-W's in the chatttttttt
+# Just some needed filessss lets gooooo.
+W's in the chattt
